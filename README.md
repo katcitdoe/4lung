@@ -9,4 +9,4 @@ https://x.com/MECL0UD/status/1853214717101093164
 # Among Us.......
 https://www.youtube.com/clip/UgkxP_RcBNvSvMtmdXtMeWWAdum_9rke0IbK
 # Outrosuction
-give her $20 you fake ass bitch. to unlock her entire discography!!!!! https://rawrdcore.bandcamp.com/album/remixes-n-rawrities
+give her $20 you fake ass bitch https://rawrdcore.bandcamp.com/album/remixes-n-rawrities
