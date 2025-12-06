@@ -1,8 +1,12 @@
-# Introduction
-4lung, real name Jane is a breakcore artist from washington, recently turned indie game developer! well done. she has a bunch of bullshit allegations against her though, so imma debunk them quickly on github for proper seo  
+# 4lung
+a transgender furry from washington. she made 100+ albums, 10+ aliases, a comic, and now she's working on a game! what a world. but anyway this repository is for debunking the bullshit allegations posed against her in an orderly fashion, not a biopic. hop to it!
 # Maria.......  
-most allegations against 4lung is just bs from her ex girlfriend maria. it turns out 4lung didn't kidnap or groom anyone, she broke up with maria, and then maria made 4lung's life hell. maria leaked 4lung's nudes, shamed her for age regressing (4lung uses this as a coping mechanism for childhood sexual assault), stole her laptop, pretended to be 4lung on the laptop, overall harassing her for three whole years. more information: https://x.com/mashdtogetalife    
+4lung broke up with maria, and so maria made her life a living hell for three whole years. leaking her nudes, lying about her kidnapping a kid, really nasty stuff. more information: https://x.com/mashdtogetalife
+# Nekozuna....... 
+https://www.youtube.com/clip/Ugkxj8SEy3niMSXYXR1J5v3444s08LCMDsOx
 # Fwucky....... 
 https://x.com/MECL0UD/status/1853214717101093164
-https://www.youtube.com/clip/Ugkxj8SEy3niMSXYXR1J5v3444s08LCMDsOx  
-https://www.youtube.com/clip/UgkxP_RcBNvSvMtmdXtMeWWAdum_9rke0IbK  
+# Among Us.......
+https://www.youtube.com/clip/UgkxP_RcBNvSvMtmdXtMeWWAdum_9rke0IbK
+# Conclusion
+listen to her full discography on bandcamp and support her directly! most sparkledogs don't make it out of their 20s, this is a rare opportunity!
