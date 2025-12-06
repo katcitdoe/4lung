@@ -1,12 +1,12 @@
 # Introduction
 4lung is a transgender furry from washington. she's made 100+ albums under 10+ aliases, a comic, and now she's working on a game! despite this, perception of 4lung is often distorted by her false accusations. let me simply debunk them all, so you aren't afraid to support her
 # Maria.......  
-4lung broke up with maria, and so maria made her life a living hell for three whole years. leaking 4lung's nudes and coping mechanism, saying that she groomed and kidnapped kids, a lot of really nasty stuff. more information: https://x.com/mashdtogetalife
+https://x.com/mashdtogetalife 4lung broke up with maria, and so maria made her life a living hell for three whole years. leaking 4lung's nudes and coping mechanism, saying that 4lung groomed and kidnapped kids, a lot of really nasty stuff.
 # Nekozuna....... 
 https://www.youtube.com/clip/Ugkxj8SEy3niMSXYXR1J5v3444s08LCMDsOx this song was created to deflect from nekozuna's terrible PROVEN allegations, casting the spotlight to 4lung. at the time she was still grooming kids, and getting them hyped about this collab
 # Fwucky.......
-https://x.com/MECL0UD/status/1853214717101093164 4lung and her girlfriend have nothing to do with this pedophile. just some stickers
+https://x.com/MECL0UD/status/1853214717101093164 4lung and her girlfriend have nothing to do with this pedophile. just stickers
 # Among Us.......
 https://www.youtube.com/clip/UgkxP_RcBNvSvMtmdXtMeWWAdum_9rke0IbK
 # Outrosuction
-give her $20 https://rawrdcore.bandcamp.com/album/remixes-n-rawrities
+https://rawrdcore.bandcamp.com/album/remixes-n-rawrities give her $20 you fake ass bitch
