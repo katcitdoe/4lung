@@ -1,5 +1,5 @@
 # Introduction
-4lung is a transgender furry from washington. she's made 100+ albums under 10+ aliases, a comic, and now she's working on a game! despite this, perception of 4lung is often distorted by her false accusations. let me simply debunk them all, so you aren't afraid to support her
+4lung is a transgender furry who's made 100+ albums with 10+ original characters, a comic, and now, she's working on a game! despite this, perception of 4lung is often distorted by her false accusations. let me simply debunk them all, so you aren't afraid to support her
 # Maria.......  
 https://x.com/mashdtogetalife 4lung broke up with maria, and so maria made her life a living hell for three whole years. leaking 4lung's nudes and coping mechanisms for csa, stealing her laptop, saying that 4lung groomed and kidnapped kids, a lot of nasty stuff.
 # Nekozuna....... 
