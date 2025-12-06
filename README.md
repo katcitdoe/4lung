@@ -9,4 +9,4 @@ https://x.com/MECL0UD/status/1853214717101093164
 # Among Us.......
 https://www.youtube.com/clip/UgkxP_RcBNvSvMtmdXtMeWWAdum_9rke0IbK
 # Conclusion
-listen to her full discography on bandcamp and support her directly! most sparkledogs don't make it out of their 20s, this is a rare opportunity!
+give her $20 you fake ass bitch. https://rawrdcore.bandcamp.com/album/remixes-n-rawrities
