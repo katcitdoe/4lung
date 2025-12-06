@@ -1,5 +1,5 @@
 # Introduction
-4lung is a transgender furry known for making 100+ albums and 10+ original characters, a comic, and now, she's even working on a game! despite this, perception of 4lung is often distorted by her false accusations. let me simply debunk them all, so you can support her guilt-free
+4lung is a transgender furry known for making 100+ albums and 10+ original characters, a comic, and now, she's working on a game! despite this, perception of 4lung is often distorted by her false accusations. let me debunk them all, so you can support her guilt-free
 # Maria.......  
 https://x.com/mashdtogetalife
 # Nekozuna....... 
@@ -9,4 +9,4 @@ https://x.com/MECL0UD/status/1853214717101093164
 # Among Us.......
 https://www.youtube.com/clip/UgkxP_RcBNvSvMtmdXtMeWWAdum_9rke0IbK
 # Outrosuction
-https://rawrdcore.bandcamp.com/4lung-money-club give her $20 you fake ass bitch
+give her $20 you fake ass bitch
