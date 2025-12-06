@@ -9,4 +9,4 @@ https://x.com/MECL0UD/status/1853214717101093164 the only connection 4lung and h
 # Among Us.......
 https://www.youtube.com/clip/UgkxP_RcBNvSvMtmdXtMeWWAdum_9rke0IbK
 # Outrosuction
-she deserves your money https://rawrdcore.bandcamp.com/4lung-money-club
+give her $20 you fake ass bitch https://rawrdcore.bandcamp.com/4lung-money-club
