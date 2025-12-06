@@ -1,12 +1,12 @@
-# 4lung
-a transgender furry from washington. she made 100+ albums, 10+ aliases, a comic, and now she's working on a game! what a world. but anyway this repository is for debunking the bullshit allegations posed against her in an orderly fashion, not a biopic. hop to it!
+# Introduction
+4lung is a transgender furry from washington. she's made 100+ albums under 10+ aliases, a comic, and now she's working on a game! despite this, perception of 4lung is often distorted by false accusations. let me debunk them all, so you aren't afraid to support her
 # Maria.......  
-4lung broke up with maria, and so maria made her life a living hell for three years. leaking 4lung's nudes and csa coping mechanisms, stealing her laptop and grooming a kid, saying 4lung kidnapped a kid, a bunch of really nasty stuff. https://x.com/mashdtogetalife
+4lung broke up with maria, and so maria made her life a living hell for three years. leaking 4lung's nudes and csa coping mechanisms, saying that 4lung groomed and kidnapped kids, a bunch of really nasty stuff. for more information: https://x.com/mashdtogetalife
 # Nekozuna....... 
 https://www.youtube.com/clip/Ugkxj8SEy3niMSXYXR1J5v3444s08LCMDsOx
 # Fwucky....... 
 https://x.com/MECL0UD/status/1853214717101093164
 # Among Us.......
 https://www.youtube.com/clip/UgkxP_RcBNvSvMtmdXtMeWWAdum_9rke0IbK
-# Conclusion
-give her $20 you fake ass bitch. https://rawrdcore.bandcamp.com/album/remixes-n-rawrities
+# Outrosuction
+give her $20 you fake ass bitch. to unlock her entire discography!!!!! https://rawrdcore.bandcamp.com/album/remixes-n-rawrities
