@@ -1,11 +1,11 @@
 # Introduction
-4lung is a transgender furry who's made 100+ albums with 10+ original characters, a comic, and now, she's working on a game! despite this, perception of 4lung is often distorted by her false accusations. let me debunk them all, so you can support her guilt-free
+4lung is a transgender furry who's made 100+ albums with 10+ original characters, a comic, and now, she's working on a game! despite this, perception of 4lung is often distorted by her false accusations. let me simply debunk them all, so you can support her guilt-free
 # Maria.......  
-https://x.com/mashdtogetalife 4lung broke up with maria, and so maria made her life a living hell for three whole years. leaking 4lung's nudes and coping mechanisms for csa, stealing her laptop, saying that 4lung groomed and kidnapped kids, a lot of nasty stuff.
+https://x.com/mashdtogetalife
 # Nekozuna....... 
-https://www.youtube.com/clip/Ugkxj8SEy3niMSXYXR1J5v3444s08LCMDsOx nekozuna asked 4lung to collaborate as a deflection from her terrible PROVEN allegations. 4lung had no idea, just like the rest of nekozuna's past collaborators
+https://www.youtube.com/clip/Ugkxj8SEy3niMSXYXR1J5v3444s08LCMDsOx
 # Fwucky.......
-https://x.com/MECL0UD/status/1853214717101093164 the only proof is planted stickers
+https://x.com/MECL0UD/status/1853214717101093164
 # Among Us.......
 https://www.youtube.com/clip/UgkxP_RcBNvSvMtmdXtMeWWAdum_9rke0IbK
 # Outrosuction
