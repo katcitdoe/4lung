@@ -1,5 +1,5 @@
 # Introduction
-4lung is a transgender furry who has created 100+ albums, 10+ original characters, a comic, and, soon, a game! though, the general perception of 4lung has been tainted by false accusations. imma debunk em all, so you can give her $20 you fake ass bitch
+4lung is a transgender furry who has created 100+ albums, 10+ original characters, a comic, and, coming soon, an entire video game! but still, her general perception has been tainted by false accusations. imma debunk em all, since she's been harassed for 7 years
 # The Grand Majority.......  
 https://x.com/mashdtogetalife
 # Nekozuna....... 
@@ -9,4 +9,4 @@ https://x.com/MECL0UD/status/1853214717101093164
 # Puppy Lasagna.......
 https://www.youtube.com/clip/UgkxP_RcBNvSvMtmdXtMeWWAdum_9rke0IbK
 # Outrosuction
-https://rawrdcore.bandcamp.com/4lung-money-club
+give her $20 you fake ass bitch https://rawrdcore.bandcamp.com/4lung-money-club AND UNLOCK HER ENTIRE DISCOGRAPHY :D!
