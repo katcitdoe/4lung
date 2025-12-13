@@ -1,5 +1,5 @@
 # Introduction
-4lung is a transgender furry who has created 100+ albums, 10+ original characters, a comic, and, coming soon, an entire video game! but still,  general perception of her has been tainted by false accusations. imma debunk em all, since it's led to her being harassed for 7 years now
+4lung is a transgender furry who has created 100+ albums, 10+ original characters, a comic, and, coming soon, an entire video game! but still,  her general perception has been tainted by false accusations. imma debunk em all, since it's led to her being harassed for 7 whole years now
 # The Grand Majority.......  
 https://x.com/mashdtogetalife
 # Nekozuna....... 
