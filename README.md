@@ -1,7 +1,7 @@
 # Introduction
 4lung is a transgender furry who has created 100+ albums, 10+ original characters, a comic, and, coming soon, an entire video game! but still, general perception of her has been tainted by false accusations. imma debunk em all, since she's been harassed for 8 whole years now
 # Keep in mind
-4lung is a age regressor and (more recently) a proshipper. these are normal, harmless coping mechanisms for csa victims. 4lung's ex girlfriend got mad at her for the former, breaking up with her, leaking it to the world, stealing her laptop, faking screenshots, and starting a harassment campaign against her. needless to say, 4lung then marked all of her accounts as 18+, so that she could be more open about it, and find people that actually accept her
+4lung is a age regressor and (more recently) a proshipper. these are normal, harmless coping mechanisms for csa victims. 4lung's ex girlfriend got mad at her for the former, breaking up with her, leaking it to the world, stealing her laptop, faking screenshots, and starting a harassment campaign against her. needless to say, 4lung then marked all her accounts as 18+, so that she could be more open about it, and discover people that actually accept her
 ## Kidnapping.......  
 https://file.garden/aOceEAH5a01gtopY/1.jpg
 ## Pedophillia.......?!
